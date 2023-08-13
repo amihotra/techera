@@ -1,2 +1,2 @@
-# techera
-amihotra.tech.era ,unlock your potential , embrace successes 
+ # AMIHOTRA.TECH.ERA
+ unlock your potential , embrace successes 
